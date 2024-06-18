@@ -1,0 +1,5 @@
+- 👋 Hola, soy Carolina Pombo Odriozola.
+- 👀 Estoy interesada en crear páginas y aplicaciones web.
+- 🌱 Actualmente estoy aprendiendo a ello.
+- 💞️ Busco colaborar con una buena empresa.
+- 📫 Puedes contactar conmigo mediante el gmail: carolina.pombo2@gmail.com
